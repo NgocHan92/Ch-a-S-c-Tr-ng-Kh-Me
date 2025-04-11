@@ -1,1 +1,1 @@
-# Ch-a-S-c-Tr-ng-Kh-Me
+# S-c-Tr-ng
